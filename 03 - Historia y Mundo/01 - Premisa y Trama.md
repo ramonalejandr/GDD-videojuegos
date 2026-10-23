@@ -6,6 +6,7 @@
 
 ## Premisa
 
+
 Un guerrero recorre el Mictlán para rescatar el alma de la sacerdotisa que ama, sin saber que murió al intentar protegerla. Al descubrir que él liberó a la entidad responsable, deberá enfrentarla y aceptar su muerte para permitir que ella regrese al mundo de los vivos.
 
 ## Sinopsis
